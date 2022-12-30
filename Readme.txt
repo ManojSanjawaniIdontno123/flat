@@ -1,0 +1,1 @@
+This Website is sole propoerty of Sanjiwani college. Use of any material from this with without consent may lead to legal action.
